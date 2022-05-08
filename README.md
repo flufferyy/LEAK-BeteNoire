@@ -1,5 +1,5 @@
 ### LEAKED BETE NOIRE PROJECT
-These People never worked with Mr.Gibson, Gibson is a fraud and should be avoided
+These People never worked with Mr.Gibson, Gibson is a fraud and should be avoided, all of these things he claims to be isnt true
 
 GET THE SKIDDY OUTTA HERE
 
@@ -8,7 +8,7 @@ GET THE SKIDDY OUTTA HERE
 [![Website](https://img.shields.io/website?label=Bête%20Noire&style=for-the-badge&url=http://betenoire.duskhaven.org/)](http://betenoire.duskhaven.org/)
 [![Discord](https://img.shields.io/website?label=Bête%20Noire%20Discord%20Server&style=for-the-badge&url=https%3A%2F%2Fdiscord.gg%2Fz9JhH5DgeC)](https://discord.gg/z9JhH5DgeC)
 
-## I'm a Full-Stack Developer, Here's A Little More About Me!
+## Mr Gibson is not a Full-Stack Developer, Here's A Little More lies About Me!
 
 - Ex-Greyhat
 - Cyber Security Specialist/Researcher
