@@ -1,5 +1,6 @@
 ### LEAKED BETE NOIRE PROJECT
 These People never worked with Mr.Gibson, Gibson is a fraud and should be avoided
+
 GET THE SKIDDY OUTTA HERE
 
 ### Project Bête Noire | Created By [YaimSputnik5][yaimsputnik5github], [iTristan][itristangithub], [Nya][sudovictorgithub], [SalC1][salc1github], [Novato][novatogithub], [Sjnez][sjnezgithub], and [Bigsigma2b2t][bigsigma2b2tgithub] 👋
